@@ -3,6 +3,9 @@
 * Liên hệ học thử: 0962797946 (FaceTime, Zalo,...), [Facebook](https://www.facebook.com/trietptm) gần ngã ba Hồ Văn Huê - Nguyễn Kiệm, Phú Nhuận.
 https://goo.gl/maps/CghSicAvrM6nnYJ8A
 
+## 2024-2025:
+![image](https://github.com/user-attachments/assets/856b5cf4-7110-4656-868f-1867c52fd5c5)
+
 ## 2018-2019:
 ![image](https://github.com/trietptm/De-Thi-Chon-Doi-Tuyen-Toan-Hoc-Sinh-Gioi-Toan-Tran-Dai-Nghia/assets/526959/52379f22-cc8d-4dbe-9b8b-0e6cc8bb1a62)
 
